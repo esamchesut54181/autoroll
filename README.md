@@ -1,1 +1,1 @@
-The Detroit Auto Show, first held in 1907, became a major event for showcasing new automobile models and innovations, attracting industry professionals and enthusiasts from around the world.
+The Cadillac Series 62, introduced in 1940 but produced into the post-war era, was a luxury car known for its powerful V8 engine, smooth ride, and lavish interior appointments.
