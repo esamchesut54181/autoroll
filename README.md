@@ -1,1 +1,1 @@
-The Packard Twin Six, introduced in 1916 but produced throughout the 1920s, featured a V12 engine and was renowned for its smooth performance and luxurious appointments.
+After the end of World War II, automobile manufacturers resumed civilian production and introduced new models designed to meet post-war demand for personal transportation.
