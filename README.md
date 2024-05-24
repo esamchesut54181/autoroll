@@ -1,1 +1,1 @@
-The Mercedes 35 hp, introduced in 1901, was one of the earliest examples of a high-performance sports car, winning races and setting records in Europe and the United States.
+The Packard Motor Car Company, founded in 1899, was a leading American luxury car manufacturer, known for its elegant designs and innovative engineering solutions.
