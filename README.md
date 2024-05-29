@@ -1,1 +1,1 @@
-The Packard Twin Six, introduced in 1916 but produced throughout the 1920s, featured a V12 engine and was renowned for its smooth performance and luxurious appointments.
+The Pontiac Streamliner, introduced in 1942 but produced after World War II, featured streamlined styling and was one of the first cars to offer an automatic transmission as an option.
