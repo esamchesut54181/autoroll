@@ -1,1 +1,1 @@
-The Pierce-Arrow Model 66, introduced in 1909, was one of the most powerful cars of its time, featuring a massive 824 cubic inch engine capable of producing 66 horsepower.
+The Locomobile Company of America, founded in 1899, was one of the first American manufacturers to produce gasoline-powered automobiles, competing with steam and electric cars of the era.
