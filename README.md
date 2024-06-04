@@ -1,1 +1,1 @@
-The Rolls-Royce Silver Ghost, introduced in 1906, set new standards for luxury and reliability in automobile design, earning a reputation as the "best car in the world."
+The Ford Model N, introduced in 1906, was Ford's first successful mass-produced car after the failure of earlier models like the Model A and Model B.
