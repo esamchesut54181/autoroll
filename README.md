@@ -1,1 +1,1 @@
-The Ford Model N, introduced in 1906, was Ford's first successful mass-produced car after the failure of earlier models like the Model A and Model B.
+The Plymouth Deluxe, introduced in 1946, was one of the first American cars to feature post-war styling, with rounded fenders, integrated headlights, and a sleek profile.
