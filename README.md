@@ -1,1 +1,1 @@
-The Plymouth Deluxe, introduced in 1946, was one of the first American cars to feature post-war styling, with rounded fenders, integrated headlights, and a sleek profile.
+The White Model M, introduced in 1905, was one of the first successful commercial trucks in the United States, featuring a robust design and powerful engine for hauling cargo.
