@@ -1,1 +1,1 @@
-The White Model M, introduced in 1905, was one of the first successful commercial trucks in the United States, featuring a robust design and powerful engine for hauling cargo.
+Civilian automobile production in the United States was largely suspended during World War II, as factories were repurposed for war production and resources were redirected to support the war effort.
