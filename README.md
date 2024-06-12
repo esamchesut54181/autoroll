@@ -1,1 +1,1 @@
-The Jeep, originally developed for military use by Willys-Overland and Ford, became an iconic vehicle of World War II and laid the foundation for the modern SUV.
+The Studebaker Corporation, founded in 1852 as a wagon manufacturer, transitioned to automobile production in the early 1900s, producing a wide range of cars and trucks.
