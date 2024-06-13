@@ -1,1 +1,1 @@
-The Studebaker Corporation, founded in 1852 as a wagon manufacturer, transitioned to automobile production in the early 1900s, producing a wide range of cars and trucks.
+The Ford Model T, introduced in 1908, revolutionized automobile manufacturing by being the first mass-produced car, making automobiles affordable for the average person.
