@@ -1,1 +1,1 @@
-After the end of World War II, automobile manufacturers resumed civilian production and introduced new models designed to meet post-war demand for personal transportation.
+The Lincoln Continental, introduced in 1940 but produced after World War II, was a luxury car favored by celebrities and dignitaries for its elegant design and refined performance.
