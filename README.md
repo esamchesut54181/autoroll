@@ -1,1 +1,1 @@
-The Indianapolis Motor Speedway, built in 1909, became a renowned venue for automobile racing, hosting events like the Indianapolis 500, one of the oldest and most prestigious motorsport races.
+The Mercedes 35 hp, introduced in 1901, was one of the earliest examples of a high-performance sports car, winning races and setting records in Europe and the United States.
