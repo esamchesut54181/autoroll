@@ -1,1 +1,1 @@
-The Packard Motor Car Company, founded in 1899, was a leading American luxury car manufacturer, known for its elegant designs and innovative engineering solutions.
+The Chrysler Town & Country, introduced in 1941 but produced into the post-war period, was one of the first mass-produced wood-paneled station wagons, featuring distinctive styling and luxury amenities.
