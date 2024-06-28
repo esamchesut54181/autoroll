@@ -1,1 +1,1 @@
-The Chrysler Town & Country, introduced in 1941 but produced into the post-war period, was one of the first mass-produced wood-paneled station wagons, featuring distinctive styling and luxury amenities.
+The Cadillac Automobile Company, founded in 1902, was one of the first luxury car manufacturers in the United States, known for its high-quality craftsmanship and innovative engineering.
