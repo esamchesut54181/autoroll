@@ -1,1 +1,1 @@
-The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
+The Ford Model N, introduced in 1906, was Ford's first successful mass-produced car after the failure of earlier models like the Model A and Model B.
