@@ -1,1 +1,1 @@
-The Ford Model N, introduced in 1906, was Ford's first successful mass-produced car after the failure of earlier models like the Model A and Model B.
+The Detroit Auto Show, first held in 1907, became a major event for showcasing new automobile models and innovations, attracting industry professionals and enthusiasts from around the world.
