@@ -1,1 +1,1 @@
-The Detroit Auto Show, first held in 1907, became a major event for showcasing new automobile models and innovations, attracting industry professionals and enthusiasts from around the world.
+The Volkswagen Beetle, originally designed in the 1930s but produced after World War II, became one of the most iconic cars of the 20th century, known for its simplicity, reliability, and affordability.
