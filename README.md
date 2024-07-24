@@ -1,1 +1,1 @@
-The Roaring Twenties saw the rise of automobile culture, with cars becoming symbols of freedom, independence, and social status for Americans.
+The Rolls-Royce Phantom I, introduced in 1925, was the first Rolls-Royce model to feature a new inline-six engine, offering improved performance and refinement over earlier models.
