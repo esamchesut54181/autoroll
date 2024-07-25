@@ -1,1 +1,1 @@
-The Rolls-Royce Phantom I, introduced in 1925, was the first Rolls-Royce model to feature a new inline-six engine, offering improved performance and refinement over earlier models.
+The Chevrolet Series 490, introduced in 1915 but produced into the 1920s, offered an affordable alternative to Ford's Model T, contributing to Chevrolet's success as a mass-market brand.
