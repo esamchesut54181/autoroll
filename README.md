@@ -1,1 +1,1 @@
-The Chevrolet Series 490, introduced in 1915 but produced into the 1920s, offered an affordable alternative to Ford's Model T, contributing to Chevrolet's success as a mass-market brand.
+The Mercedes 35 hp, introduced in 1901, was one of the earliest examples of a high-performance sports car, winning races and setting records in Europe and the United States.
