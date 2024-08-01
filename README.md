@@ -1,1 +1,1 @@
-The Mercedes 35 hp, introduced in 1901, was one of the earliest examples of a high-performance sports car, winning races and setting records in Europe and the United States.
+The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
