@@ -1,1 +1,1 @@
-The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
+The Great Depression, which began with the stock market crash of 1929, had a profound impact on the automotive industry, leading to widespread layoffs, factory closures, and consolidation among automakers.
